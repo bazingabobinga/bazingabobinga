@@ -3,11 +3,11 @@
 <p>Hii! This is my intro thing for pony town!</p>
 <b></b>
 
-- My names are Ray and/or Moldy, please dont give me nicknames if you dont know me!
+- My name is Ray please dont give me nicknames if you dont know me!
 - I really like Green Day! I wish to see them in concernt one day.
 - I have a boyfriend! Please dont flirt with me.
 - My interests are Hetalia, Black Butler, Green Day, My Chemical Romance, Weezer, and honestly idk, just get to know me!
-- Talk to me! n0riaki_kaky0in. on discord !!
+- Talk to me! greened_days on discord !!
 - Please use He/Him and They/Them pronouns when talking about me! Thanks :D
 - Do know i need tone tags sometimes. Also please do not bully me, i am just being myself
 - I am anti harassment over ships (proship)! No i dont diddle kids, i am a minor myself.
