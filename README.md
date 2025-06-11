@@ -5,7 +5,6 @@
 
 - My name is Ray please dont give me nicknames if you dont know me!
 - I really like Green Day! I wish to see them in concernt one day.
-- I have a boyfriend! Please dont flirt with me.
 - My interests are Hetalia, Black Butler, Green Day, My Chemical Romance, Weezer, and honestly idk, just get to know me!
 - Talk to me! greened_days on discord !!
 - Please use He/Him and They/Them pronouns when talking about me! Thanks :D
